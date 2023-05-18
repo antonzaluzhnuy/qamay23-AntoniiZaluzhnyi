@@ -1,1 +1,0 @@
-# qamay23-AntoniiZaluzhnyi
